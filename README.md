@@ -1,1 +1,2 @@
-# erensibotts
+# erensibot
+EQWWQSAOFJFJAPJGOPAKOSPPO ERENSİ KARDEŞİM UÇAK GELİYOR
